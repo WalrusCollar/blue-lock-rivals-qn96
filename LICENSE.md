@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with stealth blue lock rivals Scripts, the #1 Script. Includes private server access and god mode for
 
 
 
